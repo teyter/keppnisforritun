@@ -1,1 +1,1 @@
-maí 2021, Keppnisforritun TÖL607G
+Keppnisforritun TÖL607G, maí 2021
